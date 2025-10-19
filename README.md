@@ -1,2 +1,0 @@
-# X6kopiko
-Demonn
